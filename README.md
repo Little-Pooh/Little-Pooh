@@ -3,44 +3,40 @@ Welcome to my little website
 
 
 Software development and website development is really fun
-> ^going to be my new hobby
+> (likely to be my new hobby)
 
 Anyway... 
-
-
-
-
-
-
-
-
-
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
 I just came to say... 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-**I love you.** 
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+**I love you tinabunny.** 
 
 xoxo,
 
->*gossip boy*
+>*secret admirer*
