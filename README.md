@@ -1,3 +1,6 @@
-# Poohbear's very first website design 
+# This is my very first time making a website
 
-> hello tina bunny, hehe! Ima make a really cool website soon :D 
+I am learning how to website design as well as software develop for fun
+> I realised I really like this and this will be my new hobby! 
+
+Anyway, I just came to say **I love you.** 
