@@ -1,6 +1,11 @@
-# This is my very first time making a website
+# Hello my little pupper! 
+welcome to my little website
 
-I am learning how to website design as well as software develop just for fun
-> I realised I really like this and this will be my new hobby! 
+
+software development and website development is surprisingly really fun for me, and it just may be my new hobby!! 
 
 Anyway, I just came to say **I love you.** 
+
+xoxo,
+
+>*gossip boy*
