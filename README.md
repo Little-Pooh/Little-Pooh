@@ -5,7 +5,7 @@ I miss you.
 <br>
 Also thank you for being my reference x) 
 
-*So I just wanted to say...*
+*I just wanted to say...*
 <br>
 <br>
 <br>
