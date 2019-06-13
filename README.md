@@ -3,12 +3,9 @@
 I miss you. 
 > (heaps)
 <br>
-Also thank you for helping me get a job ;) 
+Also thank you for being my reference x) 
 
-Anyway... 
-
-
-So I just wanted to say...
+*So I just wanted to say...*
 <br>
 <br>
 <br>
