@@ -1,8 +1,13 @@
 # Hello Miss. Tina Bunny, 
 
-I really really really really miss you. 
+I miss you. 
 > (like really)
 <br>
+Also thank you for helping me get a job ;) 
+
+Anyway... 
+
+
 So I just wanted to say...
 <br>
 <br>
